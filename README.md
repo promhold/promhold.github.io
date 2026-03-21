@@ -1,2 +1,2 @@
 # promhold.github.io
-Promise &amp; Provision Holdings LLC Website 
+Promise &amp; Provision Holdings  
